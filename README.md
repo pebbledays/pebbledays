@@ -1,5 +1,6 @@
 wip
 bdsdssss
+![](https://github-visitor-counter-tau.vercel.app/api?username=pebbledays&displayMode=topCountries&theme=github&bg=800D0D&text=22C92D&border=3B0811)
 <img width="736" height="664" alt="3901" src="https://github.com/user-attachments/assets/2ce64e0a-0c67-44eb-bcdc-df0b43565d6b" />
 
 <!--
