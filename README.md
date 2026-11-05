@@ -10,8 +10,6 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&size=12&duration=3000&pause=100&color=B00000D6&width=435&lines=%22natural+shit+dont+want+no+barbies%22;%22i+might+cash+this+shit+in+just+like+old+carti%22;%22cash%2C+no+tats+on+my+neck%2C+no+tats+on+my+arms%22;%22had+to+put+myself+in+check%2C+dont+try+to+aura-farm%22)](https://git.io/typing-svg)
 
-
-
 <details>
   <summary>info<img width="20" height="20" alt="3950" src="https://github.com/user-attachments/assets/ffd29718-ad1e-4edf-9c4c-267d8d9fae94" /> </summary>
 
@@ -19,6 +17,12 @@
 * im a very talkative person, (when with oomfs)
  so ... int w/ me at any time!
 * im a big fan of cats and love slayr's music!
+
+
+
+<img width="1280" height="179" alt="3953" src="https://github.com/user-attachments/assets/3799f220-d3bc-4da5-8e78-1171368668bf" />
+
+
 
 
 <details>
