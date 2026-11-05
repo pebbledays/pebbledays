@@ -32,3 +32,13 @@
   * homophobes/transphobes/bigots
   * pred yumeshipper
   * more on straw
+
+ <details>
+  <summary>blinkies<img width="20" height="20" alt="3949" src="https://github.com/user-attachments/assets/ff56a034-88b7-448e-acf0-6bc4a4dba9a0" /> </summary>
+
+ <img width="150" height="20" alt="3959" src="https://github.com/user-attachments/assets/50ed1535-5adf-408d-a0cd-ee7e0d439c9b" />
+<img width="150" height="20" alt="3958" src="https://github.com/user-attachments/assets/912b87a8-e8ac-47e9-9dbc-c014eb56dc56" />
+<img width="150" height="20" alt="3957" src="https://github.com/user-attachments/assets/05356748-06bf-41c1-bbd7-4d9601faa45a" />
+<img width="180" height="24" alt="3956" src="https://github.com/user-attachments/assets/e3d177aa-3e57-4688-a984-d530b8d4cc3b" />
+<img width="180" height="24" alt="3955" src="https://github.com/user-attachments/assets/b87f41df-7e49-4d11-9406-44ff3226f747" />
+<img width="400" height="53" alt="3954" src="https://github.com/user-attachments/assets/c1bf9643-40c5-42e7-9528-385eeb84e173" />
