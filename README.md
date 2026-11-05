@@ -31,7 +31,8 @@
   * misandrist/misognist
   * homophobes/transphobes/bigots
   * pred yumeshipper v
-  * m4gg0tz/codypupp ^
+  * m4gg0tzz/codypupp ^
+  * people who are associated with m4gg0tzz
   * more on straw
   * and whoever these bums are
   <img width="145" height="112" alt="3944" src="https://github.com/user-attachments/assets/fc9ece95-6594-4235-b6c4-8dfec0c523e1" />
