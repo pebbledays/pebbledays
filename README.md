@@ -32,6 +32,11 @@
   * homophobes/transphobes/bigots
   * pred yumeshipper
   * more on straw
+  * and whoever these bums are
+  <img width="145" height="112" alt="3944" src="https://github.com/user-attachments/assets/fc9ece95-6594-4235-b6c4-8dfec0c523e1" />
+<img width="942" height="1112" alt="3947" src="https://github.com/user-attachments/assets/13a45142-67e3-49dc-b321-f5bcd0d915fb" />
+<img width="268" height="193" alt="3973" src="https://github.com/user-attachments/assets/369f2820-9bc4-4df5-bb17-fd1071c0c3c7" />
+
 
  <details>
   <summary>blinkies<img width="20" height="20" alt="3949" src="https://github.com/user-attachments/assets/ff56a034-88b7-448e-acf0-6bc4a4dba9a0" /> </summary>
