@@ -13,5 +13,6 @@
 
 
 <details>
-  <summary>info</>
+  <summary>info<img width="20" height="20" alt="3950" src="https://github.com/user-attachments/assets/ffd29718-ad1e-4edf-9c4c-267d8d9fae94" />
+</>
 
