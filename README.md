@@ -13,6 +13,9 @@
 
 
 <details>
-  <summary>info<img width="20" height="20" alt="3950" src="https://github.com/user-attachments/assets/ffd29718-ad1e-4edf-9c4c-267d8d9fae94" />
-  </yo im so happy!!!>
+  <summary>info<img width="20" height="20" alt="3950" src="https://github.com/user-attachments/assets/ffd29718-ad1e-4edf-9c4c-267d8d9fae94" /> </summary>
 
+* i am very apologetic, iwc aac
+* im a very talkative person, (when with oomfs)
+ so ... int w/ me at any time!
+* im a big fan of cats and love slayr's music!
